@@ -1,2 +1,2 @@
 # sarajevo500
-Retelling stories of Jewish and Muslim coexistence in the Balkans.
+Telling the history of Jewish and Muslim coexistence in the Balkans.
